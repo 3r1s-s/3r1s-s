@@ -1,6 +1,6 @@
 ### Hi 👋
 
-- 🔭 I’m currently working on gnaw
+- 🔭 I’m currently working on things
 - 🌱 I’m currently learning HTML and other various languages
 - 👯 I’m looking to collaborate on uhh
 - 🤔 I’m looking for help with meo (pls help im lazy)
