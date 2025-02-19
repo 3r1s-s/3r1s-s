@@ -1,7 +1,7 @@
 ### Hi 👋
 
 - 🔭 I’m currently working on things
-- 🌱 I’m currently learning JavaScript and other various languages
+- 🌱 I’m currently learning various languages
 - 👯 I’m looking to collaborate on uhh
 - 🤔 I’m looking for help with who knows
 - 💬 Ask me about anything idk
