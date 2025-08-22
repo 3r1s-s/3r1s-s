@@ -5,7 +5,7 @@
 - 👯 I’m looking to collaborate on uhh
 - 🤔 I’m looking for help with who knows
 - 💬 Ask me about anything idk
-- 📫 How to reach me: https://eris.pages.dev
+- 📫 How to reach me: hi@eris.cafe
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: uh
 ***
